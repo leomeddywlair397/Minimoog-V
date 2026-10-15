@@ -222,4 +222,4 @@ Minimoog V is provided as a full free version, with all features and updates inc
 Don’t miss out on experiencing the legendary Minimoog sound! [Download Minimoog V for free today!](https://www.softyne.com/minimoog-v)
 
 ---
-**Last updated:** 2026-10-15 08:59:19 UTC
+**Last updated:** 2026-10-15 14:07:05 UTC
